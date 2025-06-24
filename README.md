@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Galyushka, or Mrs. Nelson. I am Advocate for Human Rights, Writer, Author, Designer
 - 👀 I’m interested in ... Family Reunion and Fundraise Capital for my causes
-- 🌱 I’m currently learning ... Some Code
+- 🌱 I’m currently learning ... Some Code, Cooking, Natural Healing
 - 💞️ I’m looking to collaborate on ... Software Development
 - 📫 How to reach me ... https://www.milananelsonmom.wordpress.com
 - 🍀 Buy your lucky shoes with my $30 discount code NMQXTBMOPHF at https://aliveshoes.com/brand/credo and help me to startup! 
