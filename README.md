@@ -5,7 +5,7 @@
 - 📫 How to reach me ... https://www.milananelsonmom.wordpress.com; tel.: +1 3602060959; VOiP +19518216770; Facebook: https://www.facebook.com/galinanelson; e-mail: galina.b.nelson@outlook.com; mom.galina.nelson@gmail.com;
 - 🍀 Buy your lucky shoes with my $30 discount code NMQXTBMOPHF at https://aliveshoes.com/brand/credo and help me to startup! 
 - ❤️😍 Help me to find information and reunite with my beloved family and become friends forever! 
-- 🔐 My Paystring at Crypto.com is 
+- 🔐 My Paystring at Crypto.com is anngelinanelson$paystring.crypto.com! Let me know what is your Paystring so we could pay one another. 
 <!---
 Galyushka/Galyushka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
