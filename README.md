@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Galyushka, or Mrs. Nelson
-- 👀 I’m interested in ... Fundraise Capital 
+- 👀 I’m interested in ... Family Reunion and Fundraise Capital for my causes
 - 🌱 I’m currently learning ... Some Code
 - 💞️ I’m looking to collaborate on ... Software Development
 - 📫 How to reach me ... https://www.milananelsonmom.wordpress.com
