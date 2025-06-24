@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning ... Some Code
 - 💞️ I’m looking to collaborate on ... Software Development
 - 📫 How to reach me ... https://www.milananelsonmom.wordpress.com
-- 🍀
+- 🍀 Buy your lucky shoes with my $30 discount code NMQXTBMOPHF at https://aliveshoes.com/brand/credo and help me to startup! 
+- ❤️😍
 <!---
 Galyushka/Galyushka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
