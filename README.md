@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Galyushka, or Mrs. Nelson. I am Advocate for Human Rights, Writer, Author, Designer
 - 👀 I’m interested in ... Family Reunion and Fundraise Capital for my causes
 - 🌱 I’m currently learning ... Some Code, Cooking, Natural Healing
-- 💞️ I’m looking to collaborate on ... Software Development
+- 💞️ I’m looking to collaborate on ... Family Reunion, Fundraise, Business Startup,Script Writing, Movie Development, ... Make Your Offer
 - 📫 How to reach me ... https://www.milananelsonmom.wordpress.com
 - 🍀 Buy your lucky shoes with my $30 discount code NMQXTBMOPHF at https://aliveshoes.com/brand/credo and help me to startup! 
 - ❤️😍 Help me to find information and reunite with my beloved family and become friends firever! 
