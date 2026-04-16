@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @Galyushka, or Mrs. Galina Nelson. My penname is Galina Nelson and Milana Nelson. I am Advocate for Human Rights, Writer, Author, Designer
+- 👋 Hi, I’m @Galyushka, or Mrs. Galina Nelson. My penname is Galina Nelson, Galena Nelson and Milana Nelson. I am Advocate for Human Rights, Writer, Author, Designer
+- I speak both Russian and English fluently
 - 👀 I’m interested in ... Fundraise Capital for Family Justice Project (Let's stop human trafficking and bring families together!)
 - 🌱 I’m currently learning ... How to Find my Trafficked From me Children, Survival Homelessness and Wrongful Separation in the USA, Some Code, Cooking, Natural Healing, 
 - 💞️ I’m looking to collaborate on ...Royal Archer Editorial Services (New Project!); Help in fundraising for Family Justice Project (Spread the word about my cause!), Business Startup, ... Make Your Offer
